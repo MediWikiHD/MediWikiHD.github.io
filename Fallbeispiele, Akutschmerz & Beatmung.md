@@ -1,3 +1,0 @@
-# Fallbeispiele, Akutschmerz & Beatmung
-
-blabla
